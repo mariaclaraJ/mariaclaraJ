@@ -2,7 +2,7 @@
 
 Meu nome é Maria Clara
 
-- Sou mãe da Luna Maite.
+- Sou mãe da Lunna Maitê.
 - Estou cursando o 3º ano do Ensino Médio.
 - Utilizo esse espaço para a minha organização e compartilhamento dos meus projetos desenvolvidos.
 
